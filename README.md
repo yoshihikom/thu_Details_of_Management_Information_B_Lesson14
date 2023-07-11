@@ -1,1 +1,1 @@
-# thu_Details_of_Management_Information_B_Lesson14
+# 経営情報各論BⅠ　第14回講義用
